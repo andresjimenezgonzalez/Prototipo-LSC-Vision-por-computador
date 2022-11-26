@@ -1,0 +1,1 @@
+# Prototipo-LSC-Vision-por-computador
